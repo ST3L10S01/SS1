@@ -1,6 +1,0 @@
-# SS1
-
- ## WELCOME
-### TO THE NEW
-#### PLACE OF WORK
-
