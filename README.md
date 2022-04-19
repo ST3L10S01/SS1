@@ -4,5 +4,3 @@
 ### TO THE NEW
 #### PLACE OF WORK
 
-*HI TO 
-* ST3L10S01
